@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍🎓Name: Raaj Vaishnav Tripathi<br>🎓Education: Bachelors of Computer Applications (Hons.) : 2021 - 2024 from Lovely Professional University, Punjab, India.<br>⚡Interests: Strategic Leadership, Digital Transformation, Technological Innovation.
+🧑‍🎓Name: Raaj Vaishnav Tripathi<br>🎓Education: Bachelors of Computer Applications (Hons.) : 2021 - 2024 from Lovely Professional University, Punjab, India.<br>⚡Interests: Driving Business Growth, Digital Transformation Leadership, Cross-Functional Strategist.
 
 
 ## 🌐 Socials:
